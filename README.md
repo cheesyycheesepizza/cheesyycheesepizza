@@ -1,0 +1,2 @@
+- Hi, I’m @cheesyycheesepizza
+- I’m interested in coding, unfortunately I have just a bit little experience.
